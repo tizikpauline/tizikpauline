@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @tizikpauline
+- 👀 I’m interested in design and coding
+- 🌱 I’m currently learning TouchDesigner
+- 💞️ I’m looking to collaborate on creative agency or design studio
+- 📫 How to reach me: tizikpolina01@gmail.com
